@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
- 9/10 times we're sitting with our trio, consisting of our lovely psys (@flairforthedramatic) and our wonderful buddy (@milkywaysys). we adore both of them so much... wow wow... hi guys...
+ 9/10 times we're sitting with our trio, consisting of our dearest psys (@flairforthedramatic) and the unus to our annus (@milkywaysys). we adore both of them so much... wow wow... hi guys...
 </p>
 
 <p align="center">
