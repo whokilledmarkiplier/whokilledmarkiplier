@@ -15,5 +15,5 @@
 </p>
 
 <p align="center">
- our host has his own account (@cwtskies) and some little freak that likes being special does too (@dsaf3), you may see them around with those github accounts linked instead of this one :)
+ our host has his own account (@cwtskies) and some little freaks that like being special do too (@dsaf3 + @rylandsgrace), you may see them around with those github accounts linked instead of this one :)
 </p>
