@@ -15,7 +15,7 @@ this is the flipside's collective account,⠀used by members who don't have thei
 
 c+h freely,⠀but we may move if our friends are online.⠀they're always our number 1 priority,⠀especially our psys.⠀it's strongly encouraged that you whisper if you want to talk,⠀or we'll most likely miss the message.⠀responses aren't always guaranteed.
 
-our strawpage is currently being redone,⠀but it'll have all information you'll need.⠀sit tight⠀:)
+our strawpage is being redone,⠀but it'll have all information you'll need.⠀sit tight⠀:)
 </div>
 
 <div align="center">
