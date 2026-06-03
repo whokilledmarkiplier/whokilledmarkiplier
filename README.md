@@ -11,7 +11,7 @@
 </div>
 
 <div align="center">
-this is the flipside's collective account,⠀used by members who don't have their own,⠀and as a general hub.
+this is the flipside's collective account,⠀used by members who don't have their own github,⠀and as a general hub.
 
 c+h freely,⠀but we may move if our friends are online.⠀they're always our number 1 priority,⠀especially our psys.⠀it's strongly encouraged that you whisper if you want to talk,⠀or we'll most likely miss the message.⠀responses aren't always guaranteed.
 
