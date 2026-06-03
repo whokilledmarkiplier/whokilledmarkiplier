@@ -23,3 +23,9 @@ our strawpage is being redone,⠀but it'll have all information you'll need.⠀s
 current active members:⠀[ryland](https://github.com/rylandsgrace)⠀+⠀[damien](https://rentry.co/wipd)
 
 </div>
+
+<div align="center">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=malcolm.varndell&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e44141&interchange=false&profanity=false&hide_remaster=false&bar_color=2b131e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+</div>
