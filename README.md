@@ -27,6 +27,6 @@ current active members:⠀[ryland](https://github.com/rylandsgrace)⠀+⠀[damie
 
 <div align="center">
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=malcolm.varndell&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&mode=light&profanity=false&hide_remaster=false&bar_color=e44141&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=malcolm.varndell&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&mode=light&profanity=false&hide_remaster=false&bar_color=e44141&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 </div>
