@@ -20,7 +20,7 @@ check our links for more information,⠀especially our strawpage.⠀it has...⠀
 
 <div align="center">
   
-current active members:⠀[ryland](https://github.com/rylandsgrace)⠀+⠀[damien](https://rentry.co/drkiplier)
+current active members:⠀[ryland](https://github.com/rylandsgrace)⠀+⠀[damien](https://rentry.co/darkipIier)
 
 </div>
 
