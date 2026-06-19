@@ -15,7 +15,9 @@ this is the flipside's collective account,⠀used by members who don't have thei
 
 c+h freely,⠀but we may move if our friends are online.⠀they're always our number 1 priority,⠀especially our psys.⠀it's strongly encouraged that you whisper if you want to talk,⠀or we'll most likely miss the message.⠀responses aren't always guaranteed.
 
-check our links for more information,⠀especially our strawpage.⠀it has...⠀pretty much all you need to know.
+check our links for more information,⠀especially our strawpage.⠀it has⠀pretty much all you need to know.
+
+most annoying pierce the veil + portal + wkm fans you'll probably ever meet
 </div>
 
 <div align="center">
