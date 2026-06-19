@@ -17,7 +17,7 @@ c+h freely,⠀but we may move if our friends are online.⠀they're always our nu
 
 check our links for more information,⠀especially our strawpage.⠀it has⠀pretty much all you need to know.
 
-most annoying pierce the veil + portal + wkm fans you'll probably ever meet
+most annoying pierce the veil⠀+⠀portal⠀+⠀wkm fans you'll probably ever meet
 </div>
 
 <div align="center">
