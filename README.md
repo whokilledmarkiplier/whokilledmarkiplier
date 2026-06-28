@@ -1,34 +1,25 @@
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=lronmary&color=e44141&label=++hey++there,+++stranger++)
+  ## now is not the time to become... conspiratorial. life is ours to choose, as i always say!
+![](https://i.postimg.cc/MG5H9x7X/image-2024-05-24-202017305.png)
+![](https://i.postimg.cc/PJ0ZDV9J/image.png)
 
-</div>
+## [i.](https://youtu.be/YoSrocwNYjA) ABOUT
+hi! we're the flipside, or collectively coast :] we're plural and unfortunately chronic ponytown players. english speaking only, usually on safe server 1. right now we're based around the left side of the bakery, come say hi! neurodivergent and queer, very big fans of portal + pierce the veil + who killed markiplier, among many other pieces of media. taken by our beloved psys, [blur](https://github.com/flairforthedramatic) <3
 
-<div align="center">
-  
-![](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&pause=1000&color=E44141&center=true&vCenter=true&width=435&lines=they+will+get+their+execution.;i+will+get+my+freedom.)
+![](https://i.postimg.cc/GtgvbN12/image-2024-05-23-213218790.png)
 
-</div>
+## [ii.](https://youtu.be/LS9ssC8hoTg) BYI
+we are 18 years old!! keep that in mind when interacting with us - don't be weird. we use plural and singular terminology to address ourselves as a collective interchangably, apologies if it gets confusing. c+h is very encouraged, but don't cover anyone else we're with. we may move for a number of reasons, usually if a friend is online and we want to go to them. it's nothing personal. don't copy skins pls... have some courtesy. we're usually afk and may not see messages, if you need our attention either whisper or message on another platform. WE WILL NOT RESPOND TO WHISPERS ASKING FOR SUPPORTER HELP!!
 
-<div align="center">
-this is the flipside's collective account, used by members who don't have their own github, and as a general hub.
+![](https://i.postimg.cc/GtgvbN12/image-2024-05-23-213218790.png)
 
-c+h freely, but we may move if our friends are online. they're always our number 1 priority, especially our psys. it's strongly encouraged that you whisper if you want to talk, or we'll most likely miss the message. responses aren't always guaranteed.
+## [iii.](https://youtu.be/fe_F5F20C4E) INTERESTS
+portal, pierce the veil and who killed markiplier are our special interests; they are very important to us. other interests of note are slay the princess, off, iron lung, project hail mary, omori, 17776, control i'm not coming back, la la land, and many others. feel free to check our listography for a more extensive (but definitely not complete) list! we also draw on occasion, and really enjoy making skins on pt! if you're a friend and would like us to make you one, feel free to ask! film(making) nerd ++ former digital media student
 
-check our links for more information, especially our strawpage. it has pretty much all you need to know.
+![](https://i.postimg.cc/GtgvbN12/image-2024-05-23-213218790.png)
 
-most annoying pierce the veil + portal + wkm fans you'll probably ever meet
-</div>
+## [iv.](https://youtu.be/iDRW-lY6sQA) LINKS
+[front status](https://www.fronters.cc/pk/cbtaab) ༝ [atabook](https://flipside.atabook.org) ༝ [listography](https://listography.com/flipside) ༝ [strawpage](https://fIipside.straw.page) ༝ [public tiktok](https://www.tiktok.com/@futurestarter)
 
-<div align="center">
-  
-current active members:⠀[ryland](https://github.com/rylandsgrace) + [damien](https://github.com/darkipIier)
-
-</div>
-
-
-<div align="center">
-  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=malcolm.varndell&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&mode=light&profanity=false&hide_remaster=false&bar_color=e44141&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-</div>
+![](https://i.postimg.cc/mDqbnrtZ/image-2024-05-24-202038814.png)
