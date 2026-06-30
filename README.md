@@ -15,7 +15,7 @@ we are 18 years old!! keep that in mind when interacting with us - don't be weir
 ![](https://i.postimg.cc/GtgvbN12/image-2024-05-23-213218790.png)
 
 ## [iii.](https://youtu.be/fe_F5F20C4E) INTERESTS
-portal, pierce the veil and who killed markiplier are our special interests; they are very important to us. other interests of note are slay the princess, off, iron lung, project hail mary, omori, 17776, control i'm not coming back, la la land, and many others. feel free to check our listography for a more extensive (but definitely not complete) list! we also draw on occasion, and really enjoy making skins on pt! if you're a friend and would like us to make you one, feel free to ask! film(making) nerd ++ former digital media student
+portal, pierce the veil and who killed markiplier are our special interests; they are very important to us. other interests of note are slay the princess, off, iron lung, project hail mary, omori, 17776, control i'm not coming back, la la land, and many others. feel free to check our listography for a more extensive (but definitely not complete) list! whisp or ask on our ata for skin trades & the like... we love making and getting them lala. film(making) nerd ++ former digital media student
 
 [we love our friends so much!!](https://fiipside.straw.page/picturebook)
 
