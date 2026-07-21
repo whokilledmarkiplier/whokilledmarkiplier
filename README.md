@@ -5,7 +5,7 @@
 ![](https://i.postimg.cc/PJ0ZDV9J/image.png)
 
 ## [i.](https://youtu.be/YoSrocwNYjA) ABOUT
-hi! we're the flipside, or collectively coast :] we're plural and unfortunately chronic ponytown players. english speaking only, usually on safe server 1. right now we're based around the left side of the bakery, come say hi! very big fans of portal + pierce the veil + who killed markiplier, among many other pieces of media. taken by our beloved psys, [blur](https://github.com/flairforthedramatic) <3
+hi! we're the flipside, or collectively coast/coy :] we're plural and unfortunately chronic ponytown players. english speaking only, usually on safe server 1. right now we're based around the left side of the bakery, come say hi! very big fans of portal + pierce the veil + who killed markiplier, among many other pieces of media. taken by our beloved psys, [blur](https://github.com/flairforthedramatic) <3
 
 ![](https://i.postimg.cc/GtgvbN12/image-2024-05-23-213218790.png)
 
