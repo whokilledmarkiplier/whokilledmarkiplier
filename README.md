@@ -26,7 +26,7 @@ portal, pierce the veil and who killed markiplier are our special interests; the
 ## [iv.](https://youtu.be/iDRW-lY6sQA) LINKS
 [atabook](https://flipside.atabook.org) ༝ [listography](https://listography.com/flipside) ༝ [strawpage](https://fIipside.straw.page) ༝ [public tiktok](https://www.tiktok.com/@futurestarter) ༝ [pinterest](https://pinterest.com/whokilledmarkiplier)
 
-individual alters' accounts ﹕ [@cwtskies](https://github.com/cwtskies) ༝ [@dsaf3](https://github.com/dsaf3) ༝ [@rylandsgrace](https://github.com/rylandsgrace) ༝ [@edensgrove](https://github.com/edensgrove) ༝ [@darkipIier](https://github.com/darkipIier)
+individual alters' accounts ﹕ [@cwtskies](https://github.com/cwtskies) ༝ [@dsaf3](https://github.com/dsaf3) ༝ [@rylandsgrace](https://github.com/rylandsgrace) ༝ [@darkipIier](https://github.com/darkipIier)
 
 anything unlisted is likely private or only given out upon request, feel free to ask!
 
